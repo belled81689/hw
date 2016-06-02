@@ -5,7 +5,7 @@ just for school home work
 平日早上
 
 
-大人: 268 元  
+大人: 268 元
 小孩: 120 元
 
 
