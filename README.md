@@ -2,7 +2,7 @@
 just for school home work
 
 
-平日          假日
+平日                    假日
 
 
 大人: 268 元  368 元
