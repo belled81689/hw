@@ -13,9 +13,9 @@ just for school home work
 
 
 大人: 368 元
-小孩: 150 元 yoooooo
+小孩: 150 元
 
-
+ YOOOOO TESTTTTT
 三人同行一人免費(小孩優先免費)
 超過三人(未達十人)還是算一人免費
 
